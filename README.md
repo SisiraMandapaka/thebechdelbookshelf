@@ -1,0 +1,2 @@
+# thebechdelbookshelf
+FINAL PROJECT FOR LIT STUDIES SPRING 2020
